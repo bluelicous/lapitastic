@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lapitastic
+- 👋 Hi, I’m @bluelicous
 - 👀 I’m interested in disney, cartoons, mcyt
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on ~No~
